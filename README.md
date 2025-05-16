@@ -1,4 +1,4 @@
-# Damilare | Africa’s No.1 Pidgin Content Creator
+DamiCrypt | Africa’s No.1 Pidgin Content Creator
 
 **Web3 Ambassador | Graphic it Designer | Community Builder**
 
